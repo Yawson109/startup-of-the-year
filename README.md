@@ -1,1 +1,1 @@
-Self discovery is the begining personal empowerment
+Self discovery is the beginning of personal empowerment.
