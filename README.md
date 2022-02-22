@@ -1,1 +1,1 @@
-# startup-of-the-year
+Self discovery is the begining personal empowerment
